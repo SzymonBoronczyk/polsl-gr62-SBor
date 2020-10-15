@@ -1,1 +1,1 @@
-# polsl-gr62-SBor
+Szymon Borończyk
